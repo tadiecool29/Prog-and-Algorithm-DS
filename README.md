@@ -1,4 +1,4 @@
-Hi, I’m Tadesse, I’m interested in Machine Learning, Deep Learning and AI. I’m currently study Data Science and Analytics, I’m looking to collaborate on working data science projects, and i have a skill on data manipulations using python programming.
+Hi, I’m Tadesse, I’m interested in Machine Learning, Deep Learning and AI. I’m currently study Data Science and Analytics, I’m looking to collaborate on working data science projects, and i have a skill on data manipulation in python programming and R.
 Reach me via
               Email : tadiecool29@gmail.com
               Telegram : https://t.me/Niktadic
